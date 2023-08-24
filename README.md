@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @ArslanFarooqi
-- 👀 I’m interested in Grphic designing.
-- 🌱 I’m currently learning in saylani mass IT training program.
-- 📫 contact 0318-4461135 G mail  arslansial697@gmail.com
+- 👀 I’m interested in Graphic designing.
+- 🌱 I’m currently learning in Saylani mass IT training program.
+- 📫 contact-no 0318-4461135 G-mail arslansial697@gmail.com
 - 
 - 
 
